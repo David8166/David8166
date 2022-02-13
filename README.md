@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @David8166
-- 👀 I’m interested in ... Boys,A.i, and the droids
+- 👀 I’m interested in ... WOMEN,A.i, and the droids
 - 🌱 I’m currently learning ...from the beginning
 - 💞️ I’m looking to collaborate on ... anything
 - 📫 How to reach me ... Idk
